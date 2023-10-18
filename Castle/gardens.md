@@ -1,1 +1,1 @@
-A garden with a pond
+A garden with a large pond
