@@ -1,1 +1,1 @@
-New garden description
+A garden with a pond
