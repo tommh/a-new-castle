@@ -1,1 +1,1 @@
-New garden
+New garden description
