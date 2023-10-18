@@ -1,1 +1,1 @@
-The tower is tall with blue color.
+The tower is tall with pink color.
