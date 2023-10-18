@@ -1,0 +1,1 @@
+The tower is tall with blue color.
